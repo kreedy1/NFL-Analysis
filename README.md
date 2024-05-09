@@ -14,7 +14,7 @@
 
 - 4. **Explored the correlation between different performance metrics, such as passing yards and touchdowns.**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: kaito.reedy@gmail.com, linkedin.com/in/kylereedy0615/ </h3>
 <p align="left">
 </p>
 
